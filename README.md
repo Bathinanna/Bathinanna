@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Frameworks, Courses**
 - 📫 How to reach me: **bathinibathinanna1432@gmail.com**
-- ⚡ Fun fact: **I LOVE MATHS **
+- ⚡ Fun fact: **I LOVE MATHS**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
